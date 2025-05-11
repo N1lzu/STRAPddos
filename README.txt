@@ -1,2 +1,1 @@
-NOTICE!! THESE FILES ARE USED FOR TESTING!!!
-I AM NOT IN RESPONSE OF ANY DAMAGED OR CORRUPTED FILES OR DEVICES!!
+Notice, that this tool is only used for testing and not for illegal purposes. I am not in response of any of any damaged devices!
